@@ -6,7 +6,9 @@ The principle of Green Pioneership (´Grønt Foregangsland') has played an impor
 
 ## Contact:
 Johan Nikolaj Lausen
+
 [jnl@ifro.ku.dk](mailto:jnl@ifro.ku.dk)
+
 [LinkedIn](https://www.linkedin.com/in/johan-lausen/)
 
 ## Acknowledgements: 
